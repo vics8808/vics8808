@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @vics8808
+- 👀 I’m interested in ELS torah codes. looking to see the results of words all ready found. 
+- looking to see if i can also use a known working program that I can utilize and see for myself.
+-   Thanks All. 
+--->
